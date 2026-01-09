@@ -32,6 +32,3 @@ When I'm not debugging, you'll find me on the football pitch. I believe that the
 ---
 
 📫 **How to reach me** ahmedweb2007@gmail.com
----
-
-📫 **How to reach me:** [Your Email]
